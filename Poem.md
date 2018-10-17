@@ -65,3 +65,5 @@
     Still let my lips by yours be kissed!
     Still draw me with your hands of dew
     Unto the tryst, the dripping tryst.
+
+[source](http://www.public-domain-poetry.com/madison-julius-cawein/rain-in-the-woods-11246)
