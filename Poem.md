@@ -1,5 +1,7 @@
 # Rain In The Woods
 
+:sweat_drops::cloud::evergreen_tree::umbrella::deciduous_tree::umbrella::evergreen_tree::cloud::sweat_drops:
+
 **Rain In The Woods**
 
 *By Madison Julius Cawein*
